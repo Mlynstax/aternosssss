@@ -1,0 +1,2 @@
+# aternosssss
+Adanalıgaming
